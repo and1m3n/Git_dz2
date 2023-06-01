@@ -20,3 +20,10 @@
 ![snorgling](https://cdn.mybalitrips.com/products/5d660f42120f7.jpg)
 
 ---
+
+## **Еда**
+
+Нашли отличный ресторан с европейской кухней
+![food](https://storage.theoryandpractice.ru/tnp/uploads/image_block/000/045/643/image/base_f018709cae.jpg)
+
+---
